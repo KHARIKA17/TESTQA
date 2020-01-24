@@ -6,10 +6,9 @@ My Home is the biggest store for Mobiles,Electronics,Home appliances,books,furni
 
 * Shop
 
-  From clothing to kitchen you will find everything here with best prices.You dont need to run here and there.We have all things set for     you.We also accept credit cards here.So come join us and lets celebrate shopping.We do have return policy.
-  
+  From clothing to kitchen you will find everything here with best prices.You dont need to run here and there.We have all things set for     you.We also accept credit cards here.So come join us and lets celebrate shopping.
   ![SHOP](http://aguidetoanaheim.com/wp-content/uploads/2014/09/Anaheim-Shopping-Near-Disneyland-e1410736366369.jpg)
-  Credit to wikipedia.com
+   Credit to wikipedia.com
 
 * Food
 
