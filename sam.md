@@ -2,7 +2,7 @@
 ## Shopping,Food and Fun
 ## Discounts for Premium members
 
-Biggest store for Mobiles,Electronics,Home appliances,books,furniture,food,movies games what not!!
+Biggest store for Mobiles,Electronics,Home appliances,books,furniture,food,movies games what not!!We also offer discounts to premium members.You need not run anywhere we have all things set for you at one place.
 
 * Shop
 
@@ -19,8 +19,7 @@ Biggest store for Mobiles,Electronics,Home appliances,books,furniture,food,movie
   Apart from games we aslo have movie theaters where you can watch,relax.Games help improve persons mental skill,physical strength and its   a good way of stress buster.It is also a good way of fun and entertainment.
   ![FUN](https://www.uniquevenues.com/sites/uniquevenues.com/files/venues/slideshow/10.10.16_Bellco_Regal_063.jpg)
 
-1. Exchange
-2. Return
+We do have discounts for premium members
 
 
 
