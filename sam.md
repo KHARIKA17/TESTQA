@@ -7,4 +7,6 @@
 * Fun
 
 Welcome
-![WELCOME](https://image.shutterstock.com/image-vector/welcome-vector-lettering-on-blurred-260nw-736049245.jpg)
+![SHOP](http://aguidetoanaheim.com/wp-content/uploads/2014/09/Anaheim-Shopping-Near-Disneyland-e1410736366369.jpg)
+![FOOD](http://citilinecafe.com/wp-content/uploads/2015/12/Combo-with-any-burger-with-French-Fries-Fountain-Drink.jpg)
+![FUN](http://thumbpress.com/wp-content/uploads/2013/12/funny-theater-screen-submarine-diver.jpg)
