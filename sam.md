@@ -4,8 +4,9 @@
 
 * Shop
 
-From clothing to kitchen you will find everything here with best prices.
+  From clothing to kitchen you will find everything here with best prices.You dont need to run here and there.We have all things set for     you.We also accept credit cards here.So come join us and lets celebrate shopping.
 * Food
+  We offer variety of foods like different tyes of pizzas,burgers,variety of fried rices,deserts and much more.We do offer some healthy     stuff like salads,vegetables,fruits.We also offer beverages.So come join us.
 * Fun
 
 1. Exchange
