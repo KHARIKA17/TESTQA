@@ -1,8 +1,9 @@
 # My Home
-## My cart
+## Online shopping
+## Online gaming
 
-
-* Online shopping
+* Shop
+* Food
 * Fun
 
 Welcome
