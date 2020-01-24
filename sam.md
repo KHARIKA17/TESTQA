@@ -2,7 +2,7 @@
 ## Shopping,Food and Fun
 ## Discounts for Premium members
 
-Biggest store for Mobiles,Electronics,Home appliances,books,furniture,food,movies games what not!!We also offer discounts to premium members.You need not run anywhere we have all things set for you at one place.
+Biggest store for Mobiles,Electronics,Home appliances,books,furniture,food,movies games what not!!We also offer discounts to premium members.You need not run anywhere we have all things set for you at one place.Come just join us..
 
 * Shop
 
@@ -25,6 +25,9 @@ Biggest store for Mobiles,Electronics,Home appliances,books,furniture,food,movie
 Special offers for premium members:
 1. We do have discounts for premium members.
 2. Premium members will get points based on usaage.
+3. We have different levels of premiums.So one can get extra benefits.
+You can know more about premium levels using this link:
+[Discounts](https://www.google.com/search?q=flipkart+premium+account&rlz=1C1GCEA_enUS884US884&oq=flipcart+premi&aqs=chrome.2.69i57j0l7.18604j0j9&sourceid=chrome&ie=UTF-8)
 
 
 
