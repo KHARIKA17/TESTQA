@@ -18,7 +18,7 @@ My Home is the biggest store for Mobiles,Electronics,Home appliances,books,furni
 
 * Fun
 
-  Apart from games we aslo have movie theaters where you can watch,relax.Games help improve persons mental skill,physical strength and its   a good way of stress buster.It is also a good way of fun and entertainment.
+  Apart from games we aslo have movie theaters where you can watch,relax.Games help improve persons mental skill,physical strength and     its   a good way of stress buster.It is also a good way of fun and entertainment.
   ![FUN](https://www.uniquevenues.com/sites/uniquevenues.com/files/venues/slideshow/10.10.16_Bellco_Regal_063.jpg)
   Credit to wikipedia.com
 
@@ -28,7 +28,7 @@ Special offers for premium members:
 3. We have different levels of premiums.So one can get extra benefits.
 
 To know about premium levels use the link below
-[Discounts](https://www.google.com/search?q=flipkart+premium+account&rlz=1C1GCEA_enUS884US884&oq=flipcart+premi&aqs=chrome.2.69i57j0l7.18604j0j9&sourceid=chrome&ie=UTF-8)
+[Premiums](https://www.google.com/search?q=flipkart+premium+account&rlz=1C1GCEA_enUS884US884&oq=flipcart+premi&aqs=chrome.2.69i57j0l7.18604j0j9&sourceid=chrome&ie=UTF-8)
 
 To know about special offers use the link below
 [special offers](https://www.google.com/search?q=special+offers+in+flipkart&rlz=1C1GCEA_enUS884US884&oq=special+offers+in+flipkart&aqs=chrome..69i57j0l5.12194j0j9&sourceid=chrome&ie=UTF-8)
