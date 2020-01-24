@@ -2,6 +2,8 @@
 ## Shopping,Food and Fun
 ## Discounts for Premium members
 
+Biggest store for Mobiles,Electronics,Home appliances,books,furniture,food,movies games what not!!
+
 * Shop
 
   From clothing to kitchen you will find everything here with best prices.You dont need to run here and there.We have all things set for     you.We also accept credit cards here.So come join us and lets celebrate shopping.
