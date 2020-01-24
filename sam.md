@@ -1,6 +1,6 @@
 # My Home
-## Online shopping
-## Online gaming
+## Shopping,Food and Fun
+## Best prices
 
 * Shop
 
