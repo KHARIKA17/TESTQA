@@ -3,6 +3,7 @@
 ## Online gaming
 
 * Shop
+
 From clothing to kitchen you will find everything here with best prices.
 * Food
 * Fun
