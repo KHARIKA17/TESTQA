@@ -26,10 +26,13 @@ Special offers for premium members:
 1. We do have discounts for premium members.
 2. Premium members will get points based on usaage.
 3. We have different levels of premiums.So one can get extra benefits.
+
 To know about premium levels use the link below
 [Discounts](https://www.google.com/search?q=flipkart+premium+account&rlz=1C1GCEA_enUS884US884&oq=flipcart+premi&aqs=chrome.2.69i57j0l7.18604j0j9&sourceid=chrome&ie=UTF-8)
+
 To know about special offers use the link below
 [special offers](https://www.google.com/search?q=special+offers+in+flipkart&rlz=1C1GCEA_enUS884US884&oq=special+offers+in+flipkart&aqs=chrome..69i57j0l5.12194j0j9&sourceid=chrome&ie=UTF-8)
+
 For any complaints and queries use the link below
 [Complaints and queries](https://www.google.com/search?q=complaints+flipkart&rlz=1C1GCEA_enUS884US884&oq=complaints+flipkart&aqs=chrome..69i57j0l7.19126j1j9&sourceid=chrome&ie=UTF-8)
 
