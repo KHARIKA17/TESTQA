@@ -2,7 +2,7 @@
 ## Shopping,Food and Fun
 ## Discounts for Premium members
 
-Biggest store for Mobiles,Electronics,Home appliances,books,furniture,food,movies games what not!!We also offer discounts to premium members.You need not run anywhere we have all things set for you at one place.Come just join us..
+My Home is the biggest store for Mobiles,Electronics,Home appliances,books,furniture,food,movies games what not!!We also offer discounts to premium members.You need not run anywhere we have all things set for you at one place.Come just join us..
 
 * Shop
 
