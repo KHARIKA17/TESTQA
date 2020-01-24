@@ -1,7 +1,9 @@
-# This is a header 1
-## this is a header 2
+# My Site
+## My cart
 
-* bullet 1
-* bullet 2
+
+* Online shopping
+* Fun
 
 Welcome
+![WELCOME](https://image.shutterstock.com/image-vector/welcome-vector-lettering-on-blurred-260nw-736049245.jpg)
