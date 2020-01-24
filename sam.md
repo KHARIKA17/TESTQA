@@ -1,6 +1,6 @@
 # My Home
 ## Shopping,Food and Fun
-## Best prices
+## Discounts for Premium members
 
 * Shop
 
