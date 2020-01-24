@@ -6,8 +6,8 @@
 * Food
 * Fun
 
-1.Exchange
-2.Return
+1. Exchange
+2. Return
 
 Welcome
 ![SHOP](http://aguidetoanaheim.com/wp-content/uploads/2014/09/Anaheim-Shopping-Near-Disneyland-e1410736366369.jpg)
